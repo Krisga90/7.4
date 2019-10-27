@@ -1,0 +1,1 @@
+the probability of winning in a lottery
